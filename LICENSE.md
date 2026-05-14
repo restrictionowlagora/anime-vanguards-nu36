@@ -1,4 +1,4 @@
-
+Download smart anime vanguards Scripts for anime vanguards, the best script available, featuring auto-farm and no cooldown. This powerful tool ensures you have the upper hand in
 
 
 
